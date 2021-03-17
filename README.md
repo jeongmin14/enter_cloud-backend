@@ -1,4 +1,4 @@
-<img src="https://ibb.co/Ctjsdrq" />
+
 
 # 🚀 프로젝트 소개 
 
